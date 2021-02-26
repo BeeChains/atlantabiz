@@ -1,5 +1,7 @@
 # Welcome ATL!!!
 
-We are the ATLANTABIZ domain on [Handshake](https://handshake.org)
+We are the ATLANTABIZ/ top level domain!
 
-please inquiry [bthespirit777@protonmail](https://protonmail.com/)
+- see [Inner I Net Company](http://shapereality.innerinetcompany.hns.to/) get yourbuisness.atlantabiz  
+
+- make huge bids for this top level domain at the [Namebase Auction](https://namebase.io/domains/atlantabiz/).
