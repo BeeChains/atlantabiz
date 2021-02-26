@@ -1,2 +1,2 @@
 # atlantabiz
-Welcome to the ATLANTA BIZ domain
+Welcome to the ATLANTA BIZ/ top level domain!
